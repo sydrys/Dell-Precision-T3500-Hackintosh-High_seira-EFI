@@ -1,0 +1,1 @@
+# Dell-Precision-T3500-Hackintosh-High_seira-EFI
